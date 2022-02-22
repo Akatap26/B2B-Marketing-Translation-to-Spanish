@@ -1,0 +1,2 @@
+# B2B-Marketing-Translation-to-Spanish
+This is Katerina Katapodi, an old member of GitHub, comeing again under a different email, while my previous one was extragold1234@hotmail.com; I had translated for you, from Sep 2019 for some months a book on Marketing PT-EN and finished. Now, I am connected through Locale Translate company, as per my link and will offer you and on their account another book of Marketing, translated from EN-SP, 34000 words written originally from me, from Oct-2020, till May 2021-Thank you!
